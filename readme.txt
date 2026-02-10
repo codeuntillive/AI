@@ -1,1 +1,0 @@
-SNIPPET FOR AI
